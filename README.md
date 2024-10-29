@@ -8,3 +8,5 @@ https://www.youtube.com/shorts/Cid_WJ4OHhg
 funcionamiento:
 https://youtu.be/htClW3ezLlU
 
+
+Poster academico: https://idear.espol.edu.ec/sites/default/files/posters/edicion_x/PosterAcad%C3%A9mico_RT.pdf
